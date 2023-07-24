@@ -4,7 +4,7 @@ My name's Bohdan, I'm doing frontend 🤘🏻
 📍 Chernivtsi 🇺🇦  
   
 Contact me:  
-📩 t.me/bdvorianov  
+📩 www.t.me/bdvorianov  
 🖇️ www.linkedin.com/in/bdvorianov/  
-🟦 bsky.app/profile/bdvorianov.bsky.social  
-🐦 twitter.com/bdvorianov  
+🟦 www.bsky.app/profile/bdvorianov.bsky.social  
+🐦 www.twitter.com/bdvorianov  
